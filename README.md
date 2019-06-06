@@ -1,2 +1,2 @@
 # learn_madagascar
-We learn madagascar
+We learn madagasca.
